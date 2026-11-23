@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **yoganathapranashakti@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1NnnOonIQJQU1KSNm_Zy2RCBGSOWEtx1G?usp=drive_link](https://drive.google.com/drive/folders/1NnnOonIQJQU1KSNm_Zy2RCBGSOWEtx1G?usp=drive_link)
+- 📄 Know about my experiences [Click here to view CV](https://drive.google.com/drive/folders/1NnnOonIQJQU1KSNm_Zy2RCBGSOWEtx1G?usp=drive_link)
 
 - ⚡ Fun fact **I am a human-curious thinker / human-centric observer.**
 
